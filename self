@@ -1,0 +1,1 @@
+I am R.Reena from thoothukudi...I have completed my schooling in holy cross anglo indian higher secondary school, Thoothukudi. I have scored 93.6% in my 10th standard and 91% in 12th standard. I am currently pursuing my B.E in Computer Science in National Engineering college, kovilpatti. 
